@@ -1,7 +1,7 @@
 ----
 - 👋 Hi, I’m @PangondionKNaibaho123
 - 👀 I’m currently interested in Mobile App Development, and CNN
-- 👨🏽‍🎓 I’m currently study at Institut Teknologi Del
+- 👨🏽‍🎓 I’m a fresh graduate of Institut Teknologi Del
 - 📫 How to reach me :  
 LinkedIn : Pangondion K Naibaho  
 email : dionkurniawan130@gmail.com  
