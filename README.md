@@ -1,6 +1,6 @@
 ----
 - 👋 Hi, I’m @PangondionKNaibaho123
-- 👀 I’m currently interested in Mobile App Development, and CNN
+- 👀 I’m currently interested in Mobile Apps Development, and CNN
 - 👨🏽‍🎓 I’m a fresh graduate of Institut Teknologi Del
 - 📫 How to reach me :  
 LinkedIn : Pangondion K Naibaho  
